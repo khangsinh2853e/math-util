@@ -7,4 +7,4 @@
 
 #### Connect me via: nguyenanh28775@gmail.com
 
-##### &#164; 2026 - khangsinh2853e
+##### &#169; 2026 - khangsinh2853e
